@@ -1,6 +1,6 @@
 https://itisxx.github.io/
 
-https://www.521290.com/
+https://www.12342.net/
 
 阿里云米店：https://mi.aliyun.com/shop/21045
 
